@@ -1,0 +1,1 @@
+# windaPoissona-AGH
